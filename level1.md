@@ -80,7 +80,7 @@ He says, "Not so small. Look! He is sleeping."
 
 ## Chapter 3
 
-I get to know the little prince little by little.
+**I get to know** the little prince little by little.
 
 When he sees my airplane, he asks me, "What is that?"
 
@@ -100,7 +100,7 @@ I ask him quickly with surprise.
 
 "Do you come from another star?" But he does not answer.
 
-He looks an the plane and says. "You cannot come from very far away."
+He looks at the plane and says. "You cannot come from very far away."
 
 After a time, he carefully takes the drawing of the sheep out of his pocket.
 
@@ -115,9 +115,6 @@ He says, "This box is the sheep's house at night."
 "But if you don't tie the sheep, he goes away."
 
 "It is okay because my star is so small."
-
-
-
 
 
 
