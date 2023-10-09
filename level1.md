@@ -116,9 +116,35 @@ He says, "This box is the sheep's house at night."
 
 "It is okay because my star is so small."
 
+## Chapter 4
 
+I have more information about the little prince. His star is about the size of a house.
 
+When a star scientist finds a small star, he gives it a name by number. I belive the little prince came from star B-612.
 
+A Turkish star scientist finds this star, but nobody believes his words because he is wearing Turkish clothes.
+
+A Turkish leader has great power. He orders his people to change from Turkish clothes to European clothes. The star scientist wears European clothes and talks about the B-612 again. Everybody belives his words.
+
+I talk about numbers a lot because men like numbers. When you tell them that you have a new friend, they ask you these questions: "How old he is?" "How many brothers does he have?"
+
+They always want to know numbers.
+
+If you talk to men, you have to tell them, "I see a house that cost 20,000 dollars."
+
+Then they say, "Oh, what a pretty house that is!"
+
+If you say to them, "There is the little prince. He is lovely, and he is looking for a sheep."
+
+They consider you to be like a child.
+
+But if you say to them, "The star he cames from is B-612." They can understand what you say.
+
+I like to begin this story like a fairy tale, but people may read it lightly and forget about it.
+
+My friend is not with me. I don't want to forget the little prince, so I'm describing him here. This is why I buy a box of paints and pencils. But, It's not easy for me to draw again at my age.
+
+Sometimes, I make some errors, but I try to draw as best as I can. Imake mistakes on important details, but that is not my fault. My friend never explains anything to me.
 
 
 
