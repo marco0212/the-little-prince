@@ -146,7 +146,41 @@ My friend is not with me. I don't want to forget the little prince, so I'm descr
 
 Sometimes, I make some errors, but I try to draw as best as I can. Imake mistakes on important details, but that is not my fault. My friend never explains anything to me.
 
+## Chapter 5
 
+On the third day, I hear a story about the problem of the baobabs. (This is a tree name.)
+
+The little prince asks me quickly, "Is it true that sheep eat little trees?"
+
+"Yes, that is true."
+
+"Ah! I am glad!"
+
+"So, they eat baobab trees?" The little prince asks me again.
+
+I say to him, "No, baobabs are not little trees. They are as big as castles."
+
+But he says wisely, "Before they are so big, the baobabs start by being little."
+
+"Yes, that's right."
+
+"But why do you want the sheep to eat the little baobabs?"
+
+"What are you talking about?"
+
+He does not answer, so I have to find an answer by myself. **Maybe there is also good grass and bad grass on his star.** If he sees bad grass, he has to pull it out fast. There are very bad seeds on the star. They are baobab seeds. If you wait to pull out the baobabs, they split the small star into pieces.
+
+The little prince says to me later, "You have to pull out baobabs like you wash your face every day. It's boring, but It's easy."
+
+One day he says to me, "Draw a picture and let the children know about this land. If you don't do it every day, You will have big problems."
+
+So, I draw a star that is breaking from the baobab trees.
+
+"Children! Watch out for the baobabs!"
+
+I draw that tree very carefully. I think this drawing is great.
+
+I try to draw other pictures as well as the baobabs, but I can't. So, the other pictures are not as good as the picture of the baobabs.
 
 
 
